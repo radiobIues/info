@@ -14,7 +14,7 @@
 - i'm an asexual lesbian ⚢
 - i love **vox** and **radiostatic** a lot!!!
 - i also enjoy chaggie, staticapple, applemedia!!
-- i enjoy reading, writing, and drawing!
+- i like to read, write, and draw!!
 
 ⤷ **byi .ᐟ**
 - i'm usually afk/off tab ✧
@@ -46,6 +46,5 @@
 ⤷ **interests .ᐟ**
 - main interests: **bsd**, **arcane**, hazbin hotel, lotr ☆
 - fav games: **minecraft**, ponytown, roblox, tlou, dst
-
 
 
