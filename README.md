@@ -10,10 +10,10 @@
 
 ⤷ **me .ᐟ**
 - i go by ayu or vam! ꩜
-- i'm 23 & i use she/her/hers pronouns
+- i'm 23 & i use **she/her** pronouns
 - i'm an asexual lesbian ⚢
-- i love vox and radiostatic a lot!!!
-- i also like chaggie, staticapple, applemedia
+- i love **vox** and **radiostatic** a lot!!!
+- i also enjoy chaggie, staticapple, applemedia!!
 - i enjoy reading, writing, and drawing!
 
 ⤷ **byi .ᐟ**
