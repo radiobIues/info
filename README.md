@@ -13,7 +13,7 @@
 - i'm 23 & i use **she/her** pronouns
 - i'm an asexual lesbian ⚢
 - i love **vox** and **radiostatic** a lot!!!
-- i also enjoy chaggie, staticapple, applemedia!!
+- i also enjoy chaggie, staticapple/applemedia, fallenwings!!
 - i like to read, write, and draw!!
 
 ⤷ **byi .ᐟ**
